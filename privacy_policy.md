@@ -1,5 +1,6 @@
-Privacy Policy
-Introduction
+Privacy Policy:
+
+Introduction:
 Our privacy policy will help you understand what information is collected at Gratitude Smiles app.
 
 Information Collection and Use:
